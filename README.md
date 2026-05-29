@@ -1,3 +1,3 @@
-I will pay with stable cryptos (usdc or usdt)
-
-what is your email? I'll invite you into my slack group.
+734402368n@gmail.com
+BEP20 USDT
+0x065315eec1242a1e9af5ae6aec99b5b4b423f53a
